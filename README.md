@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AlbertoSalvarese
+- 👀 I’m interested in physics and cosmology of the very ealry universe.
+- ✨ Bachelor of science in astronomy
+- ✨ Master of science in Astrophysics and cosmology
